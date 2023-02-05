@@ -13,7 +13,6 @@
 
 - ⚡ I am passionate about **playing guitar, video-games and editing**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
